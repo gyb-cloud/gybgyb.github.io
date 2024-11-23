@@ -1,1 +1,0 @@
-# gybgyb.github.io
